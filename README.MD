@@ -1,0 +1,1 @@
+estou achando este curso interesante, mas falho falta muito conteudo.
